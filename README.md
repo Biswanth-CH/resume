@@ -1,1 +1,1 @@
-Still not updated completely 
+https://biswanth-ch.github.io/resume/
